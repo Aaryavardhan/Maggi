@@ -1,0 +1,1 @@
+first boil a glass of water and wait in between add maggi to it . Start stirring it and keep it stirring it in between and then then maggi masala and after 2 minutes it will gain ayellowish color that signifies that it is ready to eat.(Aaryavardhan)
